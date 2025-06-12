@@ -9,4 +9,4 @@ Hecho por:
 - CC : 1069472591
 - Programa: Ingenieria Industrial
 
-Video de avance de proyecto: https://youtu.be/F1rpMRqcb78?si=GLnYoSM4SiMuKkql
+Video de avance de proyecto: https://youtu.be/Gi7QNmGPBJY

@@ -10,3 +10,4 @@ Hecho por:
 - Programa: Ingenieria Industrial
 
 Video de avance de proyecto: https://youtu.be/Gi7QNmGPBJY
+Link de video de entrega final del proyecto: https://youtu.be/swKo0myec7o 
